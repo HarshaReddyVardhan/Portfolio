@@ -1,2 +1,2 @@
 # Portfolio - MALLANNAGARI HARSHAVARDHAN REDDY
-  Programmer /Web Developer
+  Programmer /Web Developer & Designer
